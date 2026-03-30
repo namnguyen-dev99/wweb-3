@@ -6,3 +6,5 @@ web 3
 sao lai
 tai sao kho?
 taij sao ko dc?
+ko dc nản 
+phải cố gắng
