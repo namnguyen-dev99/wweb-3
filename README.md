@@ -11,3 +11,8 @@ phải cố gắng
 rth  rt rth rth rth rth rhrht r
 rth r hrhrth r rth rh rthrt
 r hrth tr tjt tj t
+nah enh nhà ta nào 
+hah á dscndsh 
+sdcsd ascas dscsdc ấc vsdv sdcs d
+sdcsdc sdvsdv sdvs vsd
+sdsdvs sdvsd sdvcs d
