@@ -15,23 +15,11 @@ nah enh nhà ta nào
 hah á dscndsh 
 sdcsd ascas dscsdc ấc vsdv sdcs d
 sdcsdc sdvsdv sdvs vsd
-sdsdvs sdvsd sdvcs d
- fnfg fn fn fn fgn fgnfgn 
-  fdgnbf nghn gh
-   fgnghngh gh mhjk
-    fgngfnghn gh nm
-     fgngh nghn gh mj
-      gng hnghnghnghn gh 
-      
-sadcsadc sddssd
-sdcsd
-csdc
-sdc
-sd
-c
-sd
-cs
-dc
-sdc
-sd
-c
+cascv ác ác ascasc á
+ ác ác ác á ác   s dssd cv
+ s dvsdv sdv sdvsd vsdv 
+ s dv sdvsdv sdv sdv sdv
+ sd vsdv sdv sdv sdv sd
+ s dvsdv sdv sdv sdv 
+ sd vsd vsdv sdv sdv sd
+ sd v sdvsd vsdv sdv sdv 
