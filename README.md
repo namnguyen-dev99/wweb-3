@@ -23,3 +23,12 @@ cascv ác ác ascasc á
  s dvsdv sdv sdv sdv 
  sd vsd vsdv sdv sdv sd
  sd v sdvsd vsdv sdv sdv 
+fgnfghnfgngfngfnfgnfgnfg
+ ffg
+ fg
+ bf
+ g 
+ bfgbfgbfg bfgb fg 
+ fgb
+  fgbfgbfgbfgb fgbfg bfg bfgb
+   fgb fgbfgbfgb gfbfgb 
