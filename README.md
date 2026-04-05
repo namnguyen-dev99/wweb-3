@@ -9,18 +9,18 @@ taij sao ko dc?
 ko dc nản 
 phải cố gắng
 rth  rt rth rth rth rth rhrht r
-rth r hrhrth r rth rh rthrt
-r hrth tr tjt tj t
-nah enh nhà ta nào 
-hah á dscndsh 
+rth r hrhrth r rth rh rthrtsd vfsd
+r hrth tr tjt tj tv sdv sdfv sd
+nah enh nhà ta nào v sdv sdv sd
+hah á dscndsh  sd vsdv dsfv dsfv dsf
 sdcsd ascas dscsdc ấc vsdv sdcs d
-sdcsdc sdvsdv sdvs vsd
-cascv ác ác ascasc á
+sdcsdc sdvsdv sdvs vsddsfv sdfv 
+cascv ác ác ascasc ásdf vsdv dfv sd
  ác ác ác á ác   s dssd cv
  s dvsdv sdv sdvsd vsdv 
- s dv sdvsdv sdv sdv sdv
+ s dv sdvsdv sdv sdv sdvdsfv dsfv dsfv 
  sd vsdv sdv sdv sdv sd
- s dvsdv sdv sdv sdv 
+ s dvsdv sdv sdv sdv d vfdsv fsd fd
  sd vsd vsdv sdv sdv sd
  sd v sdvsd vsdv sdv sdv 
 fgnfghnfgngfngfnfgnfgnfg
