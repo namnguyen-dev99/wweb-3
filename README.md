@@ -24,11 +24,11 @@ cascv ác ác ascasc á
  sd vsd vsdv sdv sdv sd
  sd v sdvsd vsdv sdv sdv 
 fgnfghnfgngfngfnfgnfgnfg
- ffg
- fg
- bf
- g 
- bfgbfgbfg bfgb fg 
- fgb
+ ffgs dvsdv sdv sdv sdv sdv sdv 
+ fgsd vsdv sdv sdv sdv sdv sdv 
+ bfsd vsdv sdv sdv dsvsdv sdv s
+ g sdv sdv sdv sdv sdv sdv sdv s
+ bfgbfgbfg bfgb fg sd vsdv sdv sd
+ fgbsd vsdv dsv sdv sdv sdv sdv 
   fgbfgbfgbfgb fgbfg bfg bfgb
    fgb fgbfgbfgb gfbfgb 
